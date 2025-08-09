@@ -4,11 +4,11 @@ After that all students went to auditoruim and there we were given speeches from
 they breifed us about the grandeur of GNDEC as well as addresed various practical problem like finance.
 At 1pm we were given a brerak and at 1:30 we were told to gather again at the  auditorium, there NCC of GNDEC introduce us to to themselves after which we were split into groups and taken to our respective classrooms. There are the teachers briefed us about our upcoming academy. Journey and  show us to the labs and the respected  HOD  came and gave us an encouraging speech and after all the introductions got done, we finally dismissed at around 4:30.
 
-#DAY 2
+# DAY 2
 At 9:30 in the classroom half-109 we had our English proficiency test for about an hour, which ended at 10:30 unit immediately after at 10:30 we had our math proficiency test after we were given a break of one and a half hour
 At 1 PM we were given a great lecture by Dr. Akshdeep Singh on food patrol students overall wellness in the auditorium and after this at around 2 PM we were introduced to the causmic club the organizing Committee of GNDEC which organs Waze events, including the induction events and at 3 PM we were  dismissed again.
 
-#Day-3
+# Day-3
 At 9:30 AM, the chief Guest and pride of Asia award winner Dr Jaswinder Singh started his lecture. It was a great lecture, truthfully, I don't really have many words to describe the lecture. The professor told us about the magic of numbers , fun of science and  give us my life lessons. It was a really fun lecture and at around 11:30 the lecture ended after which an expert lecture by Priya darshini ma'am, started the subject was universal human values. The lecture was about  t human values and morals really shed light on human morals, and how to set goals for ourselves or question their value in our life. And at 1 PM, the lecture ended and we were dismissed again.
 
 # Day-4
@@ -17,11 +17,11 @@ The day started with with a chemistry lecture in the room F-106 by Professor Raj
 # Day-5
 The first class took place in ME Sam Hall. It was an English lecture by Professor MANJOT Kaur. In this lecture, she briefed us about the syllabus, and how this is focused more on the communications then she instructed us to introduce herself in front of glass in order to bat our soft skills in communication. It was a very good session which in which we prompted by improving your communication skills, she gave us valuable fee after this. We had a BEEE lecture by Professor Harpreet Kaur she told us the importance of electric circuits in an engineers life why we should learn, she she also told us about some study methods, and after this lecture, we had a maths lecture by professor  Gagandeep Kaur she told us about Max, but more importantly, she told us about the difference between college and school. She told us about how humble the stories of GNE were and how happy Shiva she gets to this school and how this will change us to be more modest in the future. She told us why we should be modest and the benefits of being modest. I really like this lecture, and this was the end of the day after this we were dismissed.
 
-#Day-6
+# Day-6
 Detail started with the P2P lecture in which appears thought as C+ plus after which at 10:30 we had a lecture while from just once saying it was a very insightful lecture. It ended at 11:30 after which day was a one hour break at 12:30. We were given a lecture by Dr. Arvind Dinga was the death of step and in charge of TSC after this fantastic lecture, we had an expert lecture by Mr. Jassveer Singh Seco district person Kam and in the end at 3 PM started a lecture by Dr. Singh Khanna in charge CML in the auditorium after this we were dismissed for day.
 
-#Day-7
+# Day-7
 At 9:30 we are lecture by doctor Amit Kamara, who was in charge at DMC digital marketing committee. He brief us about the digital platforms of GNTC he told us about his journey in which he learn digital marketing why he learned that he told us when he started the GNDEC account on social media, how he wanted to represent the college so that the students will benefit from this influence. He told us about the talented members of DMC and and showed us their work and encouraged us to join the group after this doctor Randeep Singh brief us about the conduct of examination he told us about the rubric on which we will be marked. He also told us about the make up examinations and what will happen if you don't attend all the lectures all the procedures live after this we had a break and after the break we went to the TCC hall for ID card formation.
 
-#Day-8
+# Day-8
 This was a very short day in which we had two lectures first was a lecture our professor daughter was in a workshop. It was a very very interesting lecture. She told us about conduction installation and semiconductors office. We had a chemistry lecture by Professor Karbala. It was very engaging lecture. He first question us about universal human values. After that he he told us about the syllabus after that he gave us some exercises and taught us some important concepts which are in our syllabus.
